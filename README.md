@@ -1,1 +1,5 @@
-# JustGettingtoKnowME
+# Just Getting to Know ME
+INFO
+HOW WOULD YOU KNOW
+LEARNING TO LIVE
+THE LIFE AROUND YOU 
